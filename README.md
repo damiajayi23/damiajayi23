@@ -4,6 +4,7 @@
 - 🌱 I’m currently learning DATA ANALYSIS WITH DAHEL TECHIES
 - 💞️ I’m looking to collaborate with  startup founders and business owners..
 - 📫 How to reach me via email.. drajayi21@gmail.com
+- You can also reach me via [Linkedin](https://www.linkedin.com/in/dr-oluwadamilare-philip-ajayi-b9868b252?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app)
 - I am open to Entry level Data analyis job opportunities and also looking forward to work in a team/communities
 - 
 - 
